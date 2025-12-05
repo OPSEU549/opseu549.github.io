@@ -6,18 +6,19 @@ subtitle: Who is the Local 549?
 
 **OPSEU/SEFPO Local 549 represents the majority of the staff of the Ontario Science Centre**
 
-**Officers of Local 549** (elected for 2023/2024)
+**Officers of Local 549** (elected for 20253/2026)
 - Raluca Ellis – president
 - Melis Tokgoz - vice president
 - Zoe Fitzgerald – 2nd vice president
-- Jamie Kwon - Secretary
-- Kaitlin Town - Treasurer
+- Jessica Shearer - Secretary
+- Rajesh Ramlakhan - Treasurer
 - Caitlin Carlisle - lead steward
 - Walter Stoddard – 2nd lead steward
 - Martin Fischer - President Emeritus
  
-**Stewards of the Ontario Science Centre** (elected for 2023/2024)
+**Stewards of the Ontario Science Centre** (elected for 2025/2026)
 - Athi Selvadurai
+- Ashley Duffus
 - Bonnie VanToen
 - Brent Jordan
 - Bruno Piticco
@@ -33,29 +34,32 @@ subtitle: Who is the Local 549?
 - Mark Villanueva
 - Martin Fischer
 - Melis Tokgoz
-- Mireille Mouscardy
+- Rajesh Ramlakhan
+- Rala Beni-Asaf
 - Raluca Ellis
 - Rocio Navarro
 - Walter Stoddard
+- Ward Kennedy
 - Zoe Fitzgerald
 
 
 **Joint Health and Safety Committee members** (only OPSEU worker members are listed here)
 
 **For Harbourfront Centre:**
-- Cortney Cunningham
+- Cortney Cunningham (worker co-chair and certified member)
 - Rala Beni-Asaf
 
 **For Sherway Gardens:**
-- Chris Charuk (worker co-chair)
+- Chris Charuk (worker co-chair and certfied member)
 - Duck Soo Chang
 - Laura Murray
 - Luzan Wray
 
-**For All Other Locations:**
-- Chris Charuk 
-- Martin Fischer
-- Rocio Navarro (worker co-chair)
+**For 777 Bay St. and all other locations:**
+- Amal Juman Musthafa (worker co-chair)
+- Bonnie VanToen
+- Martin Fischer (certified member)
+- Rocio Navarro (certified member)
 
   
 **Resources for members**
